@@ -1,7 +1,6 @@
 # Desert-Webpage
 Desert Webpage
 
+![image](https://github.com/user-attachments/assets/2484e7c4-cb89-40fe-a125-dab1f130c481)
 
-
-https://github.com/diegolazarocs/Desert-Webpage/assets/111025421/e31d0830-7357-4d7e-b52e-a53a3a275f46
 
